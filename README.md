@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @itsalexitodev
 - 👀 I’m interested in la cibeseguridad y el hacking ético
 - 🌱 I’m currently  estudiando CFGM  Sistemas microiformatic y  redes 
-- 💞️  Actulamete estoy en  procesdo de crear nuevos proye
+- 💞️ I got a lot of challenge to do this year
 - 📫 How to reach me ...
 - instagram: its.alexito_dev
 
